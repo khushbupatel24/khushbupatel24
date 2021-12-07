@@ -1,4 +1,3 @@
-![ Alt text](giphy.webp) / ! [](giphy.webp)
 
 - 🙏 Namaste, I’m Khushbu (she/her)
 - currently working at - Ada Support, Toronto, Canada.
