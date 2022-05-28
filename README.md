@@ -1,6 +1,5 @@
 
 - 🙏 Namaste, I’m Khushbu (she/her)
-- currently working at - Ada Support, Toronto, Canada.
 - 👀 I’m interested in - coding/building/developing new stuff 💻, do challanging tasks🎖
 - 📫 you can reach me out on - khushbupatel1093@gmail.com 💌 | https://www.linkedin.com/in/khushbu-patel-109a31b5/ 👩‍💼
 
